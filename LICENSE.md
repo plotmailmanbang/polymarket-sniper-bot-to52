@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket advanced Trading Bot: price-monitoring & sentiment-analysis, the #1 trading-bot. Includes price-monitoring and sentiment-analysis
 
 
 
